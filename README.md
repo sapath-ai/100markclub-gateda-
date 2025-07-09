@@ -56,5 +56,5 @@ Sapath Chakraborty
 
 Drive link : (https://drive.google.com/drive/u/5/folders/1CclsM2Mx7bqj6GXzXtjyjKRit8DMGYpU)
 
-In this link , you will find , 21 day focus routines , RESOURCES of the bets quality and much more
+In this link , you will find , 21 day focus routines , RESOURCES of the best quality and much more
 
