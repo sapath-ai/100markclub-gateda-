@@ -47,7 +47,7 @@ Crack 100+ in GATE DA with smart revision, daily tracking, and mock tests.
 
 Sapath Chakraborty  
 
-🔗🔗 (https://www.linkedin.com/in/sapath-chakraborty-40b357373/)
+🔗 (https://www.linkedin.com/in/sapath-chakraborty-40b357373/)
 
 📄  Check these links: 
 
